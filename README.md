@@ -1,22 +1,5 @@
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=clalew08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=c81e1e&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=clalew08&redirect=true)
+Work in progress...
 
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{red}{\textsf{⟅Read more about me below vvv⟆}}$ 
-<img width="799" height="1148" alt="wooo" src="https://github.com/user-attachments/assets/15f29b33-9a9c-46d2-b70f-a519746be976" />
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\large{\textsf{Hello! I am Spidereye. You may call me Spider instead. (˶ˆᗜˆ˵)}}$
-
-⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ᘛ✦ $\normalsize{\textsf{I am 6teen, and use They/them. Please take a look at my DNI rentry >}}$ https://rentry.co/sqidereyesdni
-
-⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ╰┈➤⠀◟─✦ $\normalsize{\textsf{Please do not int if you ship iChance/Doublefedora, Chance1337 or Pizzaburger}}$
-
-⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ $\Huge{\textsf{★Have some self control and don't act weird to me or to my friends}}$
-
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⏝ ︶─━✦─೨
-
-
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀─✦
- 
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{red}{\textsf{╰┈➤Stamps⟆}}$ 
 
 <img width="99" height="56" alt="4a5c5086" src="https://github.com/user-attachments/assets/93f69ca9-7252-40a8-9ed9-a6214bdb7b88" /> ![3426629a_original](https://github.com/user-attachments/assets/11b38c33-501c-4dd5-989b-2be17156a21d) <img width="99" height="56" alt="aa2ea780_original" src="https://github.com/user-attachments/assets/05b3b256-5a21-439d-ba42-c88a75152859" /> <img width="101" height="57" alt="cf74e1d4" src="https://github.com/user-attachments/assets/253b110a-a992-434d-a8f4-9aaea8a3c6db" /> <img width="99" height="56" alt="cy" src="https://github.com/user-attachments/assets/b88450c9-c1a3-486d-8715-23a569dedd75" /> <img width="99" height="56" alt="glassanimals" src="https://github.com/user-attachments/assets/f9afd1a4-4bd1-4160-badb-6c9e629b5299" /> ![music](https://github.com/user-attachments/assets/267e56d1-f654-408e-9f7c-62c5a0b629f8) ![IMG_6429](https://github.com/user-attachments/assets/4e8e8229-9b74-4c09-8cb9-4b809b1f3eb3) 
 
