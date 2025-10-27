@@ -1,26 +1,16 @@
 
 <div align="center">
 
-<html>
-  <body>
-<img src="https://files.catbox.moe/biyvyn.png" alt="Graphics made by Spidereye" width="670" height="670"
-  </body>
-<html></html>
-
-
-$\normalsize\color{#B40F04}{\textsf{Trigger warning: Blood, Raw meat, DDDE territory (Dead dove, don't eat)}}$
-  
- <details> 
-<summary> $\normalsize\color{#B40F04}{\textsf{Click to Continue}}$ </summary>
-
-![Graphics made by Spidereye](https://files.catbox.moe/tb4b26.png)
+![Graphics made by Spidereye](https://files.catbox.moe/ba79kp.png)
 ![](https://files.catbox.moe/2f1rwr.png) ![](https://files.catbox.moe/t4e2fr.png) ![](https://files.catbox.moe/yzizle.png) ![](https://files.catbox.moe/3ig0sx.png)
 
-$\normalsize\color{#B40F04}{\textsf{Welcome, I am Spidereye/Spider. I use They/Them, but honestly I do NOT care what you use for me }}$
+$\normalsize\color{#4E4985}{\textsf{Welcome, I am Spidereye/Spider. I use They/Them, but honestly I do NOT care what you use for me }}$
 
-$\normalsize\color{#B40F04}{\textsf{I am diagnosed with autism, and I'm an INFP. Please be patient with me, as I process things differently/slowly.}}$
+$\normalsize\color{#4E4985}{\textsf{I am diagnosed with autism, and I'm an INFP. Please be patient with me, as I process things differently/slowly.}}$
 
-$\normalsize\color{#B40F04}{\textsf{I draw! I also enjoy writing/rping. Wanna know more about me? Check out my links!}}$
+$\normalsize\color{#4E4985}{\textsf{I draw! I also enjoy writing/rping. Wanna know more about me? Check out my links!}}$
+
+![Graphics made by Spidereye](https://files.catbox.moe/e2mwdl.png)
 
 ![](https://files.catbox.moe/2zbgdb.jpg) ![](https://files.catbox.moe/94qk32.jpg) ![](https://files.catbox.moe/36gogh.png) ![](https://files.catbox.moe/mz8wc8.jpg) ![](https://files.catbox.moe/nl8lzg.png) ![](https://files.catbox.moe/7qmd8o.png)
 
@@ -52,11 +42,11 @@ $\normalsize\color{#B40F04}{\textsf{I draw! I also enjoy writing/rping. Wanna kn
 
 ![](https://files.catbox.moe/3jmu2w.gif)
 
-![Graphics made by Spidereye](https://files.catbox.moe/uxpuo6.png)
+![Graphics made by Spidereye](https://files.catbox.moe/jrh69c.png)
 
 </details>
 
 
-$\scriptsize\color{#B40F04}{\textsf{Sear was here}}$
+$\scriptsize\color{#4E4985}{\textsf{Sear was here}}$
 <div></div>
 
