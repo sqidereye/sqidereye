@@ -32,7 +32,7 @@ $\color{#A40F18}{\text{I am diagnosed with Asperger's Syndrome underneath the Au
 $\color{#A40F18}{\text{｟DO NOT INTERACT｠}}$
 </summary>
   <H2>$\color{#A40F18}{\text{BASIC DNI CRITERIA}}$</H2>
-$\color{#A40F18}{\text{If you are a nazi, racist, homophobic, transphobic, islamophobic, abelist, use slurs you cannot reclaim.}}$
+$\color{#A40F18}{\text{If you are a nazi, racist, homophobic, transphobic, anti-semetic, abelist, use slurs you cannot reclaim.}}$
   $\color{#A40F18}{\text{If you fetishize mlm/wlw relationships, romanticize abuse/mental illnesses, romanticize real criminals/murders/serial killers/school shooters}}$
 <H2>$\color{#A40F18}{\text{PERSONAL REASONS}}$</H2>
   $\color{#A40F18}{\text{Under 15 | Over 21 (Unless I deem you as a friend first. This is generally just so creeps do not interact with me.)}}$
@@ -47,6 +47,31 @@ $\color{#A40F18}{\text{If you are a nazi, racist, homophobic, transphobic, islam
     </tr>
   </table>
 
+  <table>
+    <tr>
+      <td>
+<details>
+  <summary>
+$\color{#A40F18}{\text{｟MY INTERESTS｠}}$
+</summary>
+$\color{#A40F18}{\text{Supernatural. Disco Elysium. Red Dead Redemption 1 + 2. Cry of Fear. Hollow Knight + Silksong. The Legend of Zelda Series. TWD Telltale Games. Signalis.}}$
+$\color{#A40F18}{\text{The Wolf among us. Darkwood. Dandy's World. RE7:B. Omori. COD story campaigns. FNAF + FNAF Fangames. Mouthwashing. ENA.}}$
+$\color{#A40F18}{\text{Borderlands. Child of Light. Days Gone. The Evil Within. Detroit: Become Human. Don't Starve. Hotline Miami. Horizon Zero Dawn.}}$
+$\color{#A40F18}{\text{Monster Hunter: World. Risk of Rain 2.}}$
+</details>
+      </td>
+    </tr>
+  </table>
+
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/this%20user%20is%20a%20minor"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/unlabelled.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/enby.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/pierced%20and%20proud">
+
+---
+
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/HAIL%20THE%20SUN.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/glassanimals.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/deftones"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/machine%20girl"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/linkinpark"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/speedcore2.png">
+
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/proud%20wii%20owner.jpg"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/i%20love%20exploding"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/bloody%20smile"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/weed"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/i%20ate%20your%20cellphone"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/mentally%20violent"> 
+
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/profile%20edit%20images/ffrr.png">
 
 <div></div>
 
