@@ -14,7 +14,7 @@ $\color{#A40F18}{\text{｟Spidereye/Spider｠ ｟7TEEN｠ ｟They/Any｠}}$ <img
   <summary>
 $\color{#A40F18}{\text{｟IMPORTANT BYI｠}}$
 </summary>
-$\color{#A40F18}{\text{I am diagnosed with Asperger's Syndrome underneath the Autism Spectrum, Generalized Anxiety Disorder [GAD], and Paranoid Personality Disorder [PPD]}}$
+$\color{#A40F18}{\text{I am diagnosed with Asperger's Syndrome, Generalized Anxiety Disorder [GAD], and Paranoid Personality Disorder [PPD]}}$
   $\color{#A40F18}{\text{I struggle badly with friendships. I am high maintenance, and require constant communication on both mine and your side.}}$
     $\color{#A40F18}{\text{I go through constant mood swings throughout the day, and I may become dry because I am tired.}}$
   $\color{#A40F18}{\text{I do not apologize for my brain chemistry. However, I am going through steps to overcome and cope with myself.}}$
