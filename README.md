@@ -27,7 +27,7 @@
 
 
 <p align="left">
-<img src="https://file.garden/aeFuJe6P_R_1-oPi/NEW%20PROFILE/5%20MADE%20BY%20GISELLE%20EDITED%20BY%20SPIDER.png" width="370" align="left">
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/NEW%20PROFILE/5%20MADE%20BY%20GISELLE%20EDITED%20BY%20SPIDER.png" width="350" align="left">
 </p>
  
 
