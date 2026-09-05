@@ -49,8 +49,8 @@
             $\color{#CD000A}{\text{BEFORE YOU INTERACT.}}$
           </summary>
           <p>$\color{#CD000A}{\text{I am diagnosed with Autism, GAD, PPD, and MDD}}$</p>
-         <P>$\color{#CD000A}{\text{I have mood swings, and I have a low social battery and will become dry.}}$</P>
-          <p>$\color{#CD000A}{\text{I require constant communication. I will be forward about things I do not like.}}$</p>
+         <P>$\color{#CD000A}{\text{I have mood swings, and I have a low social battery.}}$</P>
+          <p>$\color{#CD000A}{\text{I require constant communication. I am forward about boundaries}}$</p>
         </details>
       </td>
     </tr>
@@ -93,7 +93,7 @@
 
 
 
-<img src="https://file.garden/aeFuJe6P_R_1-oPi/NEW%20PROFILE/4.png" width="500" align="center">
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/NEW%20PROFILE/4.png" width="450" align="center">
 
 </div>
 
