@@ -39,7 +39,7 @@
 
 
 <img src="https://file.garden/aeFuJe6P_R_1-oPi/meat%20plus"> $\color{#CD000A}{\text{SPDR-I/SPIDEREYE. ✧ 7TEEN. ✧ They/Any}}$
-<p>$\color{#CD000A}{\text{Number 1 Meat Enthusiast}}$</p>
+<p>$\color{#CD000A}{\text{Number 1 Meat Enthusiast + Anti-Censorship}}$</p>
 
   <table>
     <tr>
@@ -63,8 +63,8 @@
           <summary>
             $\color{#CD000A}{\text{DO NOT INTERACT.}}$
           </summary>
-          <p>$\color{#CD000A}{\text{Basic DNI criteria applies. 15 or under. Use slurs you can't reclaim.}}$</p>
-         <P>$\color{#CD000A}{\text{Romanticize abuse, mental illnesses, real murders, etc.}}$</P>
+          <p>$\color{#CD000A}{\text{Basic DNI criteria applies. Under 15. Use slurs you can't reclaim.}}$</p>
+         <P>$\color{#CD000A}{\text{ If you Romanticize abuse, mental illnesses, real murders, etc.}}$</P>
           <p>$\color{#CD000A}{\text{If you believe fiction does not affect critical thinking. (Proshippers.)}}$</p>
         <p>$\color{#CD000A}{\text{If you joke about/justify incest, pedophilia, beastiality, abuse, etc.}}$</p>
           <p>$\color{#CD000A}{\text{TCOAAL, Alfred's playhouse, Vizipop creations, TADC.}}$</p>
