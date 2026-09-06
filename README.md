@@ -65,7 +65,7 @@
           </summary>
           <p>$\color{#CD000A}{\text{Basic DNI criteria applies. 15 or under. Use slurs you can't reclaim.}}$</p>
          <P>$\color{#CD000A}{\text{Romanticize abuse, mental illnesses, real murders, etc.}}$</P>
-          <p>$\color{#CD000A}{\text{If you believe fiction does not affect reality. (Proshippers.)}}$</p>
+          <p>$\color{#CD000A}{\text{If you believe fiction does not affect critical thinking. (Proshippers.)}}$</p>
         <p>$\color{#CD000A}{\text{If you joke about/justify incest, pedophilia, beastiality, abuse, etc.}}$</p>
           <p>$\color{#CD000A}{\text{TCOAAL, Alfred's playhouse, Vizipop creations, TADC.}}$</p>
         </details>
@@ -73,7 +73,7 @@
     </tr>
   </table>
 
-<img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/red.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/red%20(2).png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/red%20(1).png">
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/meat%203"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/meat%202"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/meat%204">
 <p><img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/bloody%20smile"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/mentally%20violent"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/i%20support%20this%20bloody%20stamp"></p>
 <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/8c76b652.jpg"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/eeds.png"> <img src="https://file.garden/aeFuJe6P_R_1-oPi/stamps/i%20love%20eating%20stamps">
 
