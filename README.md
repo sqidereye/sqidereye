@@ -18,10 +18,6 @@
 <img src="https://file.garden/aeFuJe6P_R_1-oPi/BUTTONS/2.75">
 </a>
 
-<a href="https://github.com/LADYLUCKSONMYSIDE">
-<img src="https://file.garden/aeFuJe6P_R_1-oPi/BUTTONS/2.png">
-</a>
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=CF0009&center=true&vCenter=true&width=435&lines=As+he+approached+the+crossroads%2C;the+devil+appeared+to+him+and+said%2C;%E2%80%9CWouldst+thou+like+to+live+deliciously%3F%E2%80%9D)](https://git.io/typing-svg)
 
 
