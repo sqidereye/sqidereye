@@ -10,7 +10,7 @@
 <img src="https://file.garden/aeFuJe6P_R_1-oPi/BUTTONS/1.png">
 </a>
 
-<a href="https://pronouns.cc/@sqidereye">
+<a href="https://listography.com/sqidereye">
 <img src="https://file.garden/aeFuJe6P_R_1-oPi/BUTTONS/2.5.png">
 </a>
 
