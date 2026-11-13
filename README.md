@@ -42,7 +42,7 @@
 |----------------------------------|
 
 
-<img src="https://file.garden/aeFuJe6P_R_1-oPi/PIXELS/meat%20plus"> $\color{#CD000A}{\text{SPDR-I/SPIDEREYE. ✧ 7TEEN. ✧ They/Any}}$
+<img src="https://file.garden/aeFuJe6P_R_1-oPi/PIXELS/meat%20plus"> $\color{#CD000A}{\text{SPDR-I/SPIDEREYE. ✧ 8TEEN. ✧ They/Any}}$
 <p>$\color{#CD000A}{\text{Number 1 Meat Enthusiast + Anti-Censorship}}$</p>
 
   <table>
